@@ -1,2 +1,2 @@
 # new-one
-love you
+love you because you are crazy
